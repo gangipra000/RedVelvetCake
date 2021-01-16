@@ -9,4 +9,4 @@
 1 (1-ounce) bottle liquid red food color
 2 teaspoons pure vanilla extract
 1 teaspoon distilled white vinegar
-1 and 1/3 cups (320 ml) buttermilk room temperature
+1 and 1/3 cups (320 ml) buttermilk room temperature.
